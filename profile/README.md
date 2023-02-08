@@ -4,7 +4,7 @@ We truly appreciate your support of our small, family business! ❤️ It’s no
 
 ## Follow us:
 
-Our shop [nightowlpapergoods.com](https://nightowlpapergoods.com)
-Etsy [@NightOwlPaperGoods](https://www.etsy.com/shop/NightOwlPaperGoods)
-Instagram [@nightowlpapergoods](https://www.instagram.com/nightowlpapergoods/?hl=en)
+Our shop [nightowlpapergoods.com](https://nightowlpapergoods.com)<br>
+Etsy [@NightOwlPaperGoods](https://www.etsy.com/shop/NightOwlPaperGoods)<br>
+Instagram [@nightowlpapergoods](https://www.instagram.com/nightowlpapergoods/?hl=en)<br>
 Facebook [@nightowlpapergoods](https://www.facebook.com/nightowlpapergoods/)
